@@ -1,0 +1,3 @@
+I have done a lot of work adding the sounds from the beginning to create a story. The news weather reports and the sounds of early morning routines are similar to the day in/day out type of soundscape. 
+I originally tried to avoid this because it seemed basic, but I believe it fits my soundscape very well. The finished product will be a day in the life of a skier.
+The complete credits list will be much more organized and contain more information for the sources. Using audacity has only gotten easier, and I can feel myself working faster everytime I work.
