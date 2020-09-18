@@ -17,3 +17,13 @@ Downhill ski - Freesound.org https://freesound.org/people/Supersciri/sounds/1125
 RadioTune_2_bip.wav - Freesound.org https://freesound.org/people/passAirmangrace/sounds/340911/ .wav file March 22nd, 2016
 
 Relaxing Forest Birds Chirping in the North Woods - Freesound.org https://freesound.org/people/taavhaap/sounds/528661/ .wav file July 22nd, 2020
+
+Good Morning Good Morning, The Beatles
+
+Buckeye Bonzai - Youtube Audio Library https://studio.youtube.com/channel/UCGkE_vT2j0_H1X2w-_5HhZg/music?utm_campaign=upgrade&utm_medium=redirect&utm_source=%2Faudiolibrary%2Fmusic .mp3
+
+Mammoth Mountain snow report https://www.youtube.com/watch?v=-3gNrl4g03E&ab_channel=ABC10News
+
+Car, Engine off - Freesound.org https://freesound.org/people/InspectorJ/sounds/345559/ .wav May 10th, 2016
+
+Our French Cafe, Jimmy Fontanez - Youtube Audio Library https://studio.youtube.com/channel/UCGkE_vT2j0_H1X2w-_5HhZg/music?utm_campaign=upgrade&utm_medium=redirect&utm_source=%2Faudiolibrary%2Fmusic .mp3
